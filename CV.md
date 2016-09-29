@@ -10,14 +10,20 @@
 
 ## Education  
 
+*9/2016 – present*   Master Economics, Tilburg University, The Netherlands  
+		     Track: Behavioural Economics    
+		     
+*9/2016 – present*   Master Philosophy, Tilburg University, The Netherlands   
+		     Track: Ethics for businesses and organizations    
+		     
+*1/2016 – 6/2016*    Premaster Philosophy, Tilburg University, The Netherlands   
 
-
-9/2011 – present /t Bachelor Economics and Business Economics, Tilburg University, The Netherlands  
-	               /t Bachelor thesis: Does stress affect poverty? Grade: 9  
+*9/2011 – 6/2015*    Bachelor Economics and Business Economics, Tilburg University, The Netherlands    
+	             Bachelor thesis: Does stress affect poverty? Grade: 9    
 			
-10/2013 – 2/2014 /t ERASMUS exchange programme, Athens University of Economics and Business, Greece  
+*10/2013 – 2/2014*   ERASMUS exchange programme, Athens University of Economics and Business, Greece  
 
-9/2005 – 8/2011  /t VWO (pre-university education), Udens College, The Netherlands  
-                 /t Profile: Economics and Society  
+*9/2005 – 8/2011*    VWO (pre-university education), Udens College, The Netherlands  
+                     Profile: Economics and Society  
 
 
