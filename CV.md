@@ -58,6 +58,24 @@
 
 ## Other Skills  
 
+*Languages:*  
+
+**Dutch** – Native 
+
+**English** – Good  
+Language course: English for the future (Tilburg University)    
+
+**German** – Good  
+Language course: German for intermediates (Tilburg University)  
+Language course: Berlin im Winter 1/2015 (Humboldt University, Berlin)  
+Three weeks German language course; level C1  
+
+*Technical:*  
+Microsoft Office, STATA  
+
+## Hobbies  
+
+Philosophy, politics, bookkeeping, dancing, travelling
 
 
 
