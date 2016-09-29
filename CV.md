@@ -75,7 +75,7 @@ Microsoft Office, STATA
 
 ## Hobbies  
 
-Philosophy, politics, bookkeeping, dancing, travelling
+Philosophy, politics, running, dancing, travelling
 
 
 
