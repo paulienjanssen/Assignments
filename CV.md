@@ -48,7 +48,7 @@
 
 ## Extracurricular Activities  
 
-*1/2015 – 1/2016*	**Faculty Council**, Student Party ECCO, 6 hours a week  
+*4/2016 – present*	**Faculty Council**, Student Party ECCO, 6 hours a week  
 •	Together with 6 other students, I represent all TiSEM students in the Faculty Council of Tilburg School of Economics and Management. By law, we are mandated to approve and advise on several strategic issues of the school. Moreover, we are allowed to initiate plans ourselves.
 
 *1/2015 – 1/2016*	**External Affairs Officer**, Asset | International Business & Management, Fulltime   
@@ -58,6 +58,7 @@
 •	Responsible for leading a committee that organizes a three-week trip for 20 students to a developing country for volunteer work and cultural activities.   
 
 *2/2014 – 9/2014*	**Vice-Chairman of the Symposium Committee**, Asset |Economics, Asset | International Business and Management, Complex, 5 hours a week
+
 •	Assisting the chairman of the committee with organising the symposium and leading the committee in case of her absence.   
 •	Contact person Chairman of the Day  
 
